@@ -1,4 +1,4 @@
-### Hi there.. I'm Kelechi 👋
+### Hi there.. I'm Josi Karachi 👋
 
 Software Developer 🦾
 
